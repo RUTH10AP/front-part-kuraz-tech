@@ -1,0 +1,1 @@
+# front-part-kuraz-tech
